@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YangYang-DLUT
-- 🌱 I’m currently learning in SSDUT.
+- 🌱 I’m currently in Meituan Robotics.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sidyang_sirius@hotmail.com
 
