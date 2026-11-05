@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @YangYang-DLUT
-- 👀 I’m interested in photography and music.
 - 🌱 I’m currently learning in SSDUT.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sidyang_sirius@hotmail.com
